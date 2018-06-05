@@ -1,3 +1,4 @@
+Protect Best Selling - Shopify App by SingleSh0tDiocampo
 
      ,-----.,--.                  ,--. ,---.   ,--.,------.  ,------.
     '  .--./|  | ,---. ,--.,--. ,-|  || o   \  |  ||  .-.  \ |  .---'
